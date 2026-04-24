@@ -1,6 +1,6 @@
 # 鹿语云机场官网地址
 
-最新地址：[luyuyun.com](https://luyuyun.com/register?code=2o6c2GV9)
+最新地址：[luyuyun.com](https://鹿语.com/#/register?code=2o6c2GV9)
 
 ## 鹿语云介绍
 
